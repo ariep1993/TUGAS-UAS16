@@ -18,3 +18,7 @@ Cara Menjalankan Program :
 ## Untuk penjelasan program berupa video youtube silahkan kunjungi link berikut :
 
 https://www.youtube.com/watch?v=VHljA6D1yFk
+
+## Follow my instagram :
+
+https://instagram.com/ariep_sarip?igshid=ZDdkNTZiNTM=
