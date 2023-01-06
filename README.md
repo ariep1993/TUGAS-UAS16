@@ -22,3 +22,5 @@ https://www.youtube.com/watch?v=VHljA6D1yFk
 ## Follow my instagram :
 
 https://instagram.com/ariep_sarip?igshid=ZDdkNTZiNTM=
+
+# trimakasih
