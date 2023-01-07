@@ -13,7 +13,7 @@ Cara Menjalankan Program :
 
 ## Untuk penjelasan program berupa pdf silahkan kunjungi link berikut :
 
-[program nilai mahasiswa .pdf](https://github.com/ariep1993/TUGAS-UAS16/files/10362226/program.nilai.mahasiswa.pdf)
+[PROGRAM NILAI MAHASISWA.pdf](https://github.com/ariep1993/TUGAS-UAS16/files/10366449/PROGRAM.NILAI.MAHASISWA.pdf)
 
 ## Untuk penjelasan program berupa video youtube silahkan kunjungi link berikut :
 
